@@ -1,4 +1,4 @@
-
+smart ink game Scripts offers the most advanced ink game Script, with one-hit kill and esp. Perfect for dominating any match.
 
 
 
